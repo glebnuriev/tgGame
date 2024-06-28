@@ -14,6 +14,7 @@
 
 
 
+![Desktop Screenshot 2024 06 28 - 14 56 41 73](https://github.com/glebnuriev/tgGame/assets/144834175/3fe307e9-c6f8-4d01-b26b-33c618b49031)
 
 
 
